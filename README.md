@@ -1,2 +1,2 @@
 # FirstProject
-For all trash.
+For all trash. О_О
